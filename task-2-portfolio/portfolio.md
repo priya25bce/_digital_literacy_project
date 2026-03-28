@@ -21,7 +21,7 @@ Description :-
 
 I have created accounts on Kaggle, LinkedIn and Github. The plan is to learn as many as new skills as possible with proper learning. On GitHub, I will post my new projects that I 
 make and on LinkedIn, I will tey to update my profile with my new skills and achievements. I will try to collaboarte with other people so that I can learn from them. On Kaggle, I 
-will try to competitewith various people and upadte my knowledge.
+will try to competite with various people and upadte my knowledge.
 
 
 
