@@ -6,4 +6,4 @@ Description :-
 
 I have created an infographic on digital awareness which describes the following three topics which are what digital literacy is , safe online practices and how to be professional
 on online platforms. This has helped me to undersatnd how we cam make a beautiful infographic and also taught me to put correct content. I have learnt how to put short and important 
-content that make my infigraphic look good and has good content.
+content that make my infographic look good and has good content.
