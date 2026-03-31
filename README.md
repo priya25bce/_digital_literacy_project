@@ -17,13 +17,13 @@ Registration Number :- 25BCE10221
 
 Task-01 Summary :-
 
-I have created an infographic on digital awareness which describes the following three topics which are what digital literacy is , safe online practices and how to be professional on online platforms. This has helped me to undersatnd how we can make a beautiful infographic and also taught me to put correct content. I have learnt how to put short and important content that make my infographic look good and has good content.
+I have created an infographic on digital awareness which describes the following three topics which are what digital literacy is , safe online practices and how to be professional on online platforms. This has helped me to understand how we can make a beautiful infographic and also taught me to put correct content. I have learnt how to put short and important content that make my infographic look good and has good content.
 
 
 Task-02 Summary :- 
 
 
-I have created accounts on Kaggle, LinkedIn and Github. The plan is to learn as many as new skills as possible with proper learning. On GitHub, I will post my new projects that I make and on LinkedIn, I will tey to update my profile with my new skills and achievements. I will try to collaboarte with other people so that I can learn from them. On Kaggle, I will try to competite with various people and upadte my knowledge.
+I have created accounts on Kaggle, LinkedIn and Github. The plan is to learn as many as new skills as possible with proper learning. On GitHub, I will post my new projects that I make and on LinkedIn, I will try to update my profile with my new skills and achievements. I will try to collaboarte with other people so that I can learn from them. On Kaggle, I will try to competite with various people and upadte my knowledge.
 
 
 Task-03 Summary :-
